@@ -10,7 +10,6 @@
 - ⚡ Fun fact:
   -  🥋Krav Maga and karate teacher
   -  🐺​🛷​I've also been working as sled dogs trainer and musher in the Artic Circle ☃️
-  -  ​​🎓​While finsihing 2 master degrees.
 
 <!---
 Clemagda/Clemagda is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
